@@ -37,9 +37,9 @@ Spanish A1
 **Drug and medical devicesregistration manager**  
 *Mar 2019 - Mar 2022. JV Pharmland LLC*  
 **Achievements**  
-*organized the structure of the internaldocumentation of the department, which led tothe optimization of the workflow.  
-*successfully registered 6 new medicines and 15medical devices on the market of the Republic ofBelarus.  
-*ensured the successful passage of the medicalinspection evaluation of the new productionmedical devices.  
+* organized the structure of the internaldocumentation of the department, which led tothe optimization of the workflow.  
+* successfully registered 6 new medicines and 15medical devices on the market of the Republic ofBelarus.  
+* ensured the successful passage of the medicalinspection evaluation of the new productionmedical devices.  
 
 ## **Education History**  
 **Biochemist analyst**  
